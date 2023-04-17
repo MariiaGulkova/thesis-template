@@ -42,3 +42,12 @@ propaganda as a phenomenon ///in Soviet Union art///, and its impact on our pres
 - Chesney and Citron, “Deepfakes and the New Disinformation War: The Coming Age of Post-Truth Geopolitics.”
 
 - Nina Lobanov-Rostovsky - Soviet Propaganda Porcelain
+jmhv
+
+- PERCEPTION MANAGEMENT IN THE MEDIA
+Giray Saynur Derman
+
+- Understanding propaganda: A conversation with Renee Hobbs
+Rafael Heller, January 7, 2021 https://kappanonline.org/propaganda-renee-hobbs/
+
+- 
